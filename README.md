@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **nithish26123@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1_ris3mvW0qYARNWn8XMKAtZuacU9WKlw/view](https://drive.google.com/file/d/1_ris3mvW0qYARNWn8XMKAtZuacU9WKlw/view)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1_ris3mvW0qYARNWn8XMKAtZuacU9WKlw/view]([https://drive.google.com/file/d/1_ris3mvW0qYARNWn8XMKAtZuacU9WKlw/view](https://drive.google.com/file/d/1dHuG4UraEVCRbyTDVxtGKTjN383JZ_oL/view?usp=sharing))
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
